@@ -7,7 +7,7 @@
 ## Autor
 
 👤 **Patryk Kacprowicz**
-* Github: [@Gooldzik](https://github.com/Gooldzik)
+* Github: [@Goooldzik](https://github.com/Goooldzik)
 * LinkedIn: [@Patryk Kacprowicz](https://linkedin.com/in/patryk-lukasz-kacprowicz)
 
 ## Opis
